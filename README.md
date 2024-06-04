@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Em fazer e ajudar
 - 📫 How to reach me 00001085170627sp@al.educacao.sp.gov.br
 - 😄 Pronouns Ela/Dela
-- ⚡ Fun fact Todas as vezes que eu saiu
+- ⚡ Fun fact Sou mamãe
    
 
 <!---
