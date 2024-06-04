@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Raíssa Carneiro
-- 👀 I’m interested in Em aprender 
-- 🌱 I’m currently learning A programar jogos
+- 👀 I’m interested in Aprender 
+- 🌱 I’m currently learning A programar jogos, administração e agriculura
 - 💞️ I’m looking to collaborate on Em fazer e ajudar
 - 📫 How to reach me 00001085170627sp@al.educacao.sp.gov.br
 - 😄 Pronouns Ela/Dela
